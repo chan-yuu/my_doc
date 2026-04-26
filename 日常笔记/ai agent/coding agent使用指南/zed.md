@@ -1,0 +1,2 @@
+https://dashboard.zed.dev/org_01kpdeezcptrh4fsvhz1n49ajv
+不知道后续订阅是多少，至少现在还是有14天的额度哈
